@@ -1,0 +1,1 @@
+este archivo documentara el proceso de la pagina web para los a¿rendices del sena que deseen buscar u patrocinio en su etapa lectiva como olo es en mi caso
